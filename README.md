@@ -3,7 +3,7 @@
 **How to Spot a Great Deal: Finding Cheap Land for Sale in Oregon**
 
 **Introduction**
-Finding a great deal on [cheap land for sale in Oregon]([url](https://apxnproperty.com/state/oregon)) can be both exciting and rewarding. With its varied landscapes and appealing property prices, Oregon is an excellent place to look for affordable land. 
+Finding a great deal on [cheap land for sale in Oregon]([url](https://apxnproperty.com/state/oregon/)) can be both exciting and rewarding. With its varied landscapes and appealing property prices, Oregon is an excellent place to look for affordable land. 
 Here’s how you can spot a fantastic deal and make the most of your land purchase.
 
 **1. Research Market Trends**
